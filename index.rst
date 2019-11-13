@@ -1,6 +1,6 @@
 Smadav 2020 Kuyhaa Free
 
-`Smadav 2020 <https://www.smadav2020kuyhaa.com//>`_  Antivirus generally operate as extra protection for your COMPUTER (particularly its complete protection for USB Flash Drive), so the software does not use complete protection. If you would be frequently browsing internet or mounting new apps, you are extremely advised to use an additional security products that offer total protection.
+`Smadav 2020 <https://www.smadav2020kuyhaa.com/>`_  Antivirus generally operate as extra protection for your COMPUTER (particularly its complete protection for USB Flash Drive), so the software does not use complete protection. If you would be frequently browsing internet or mounting new apps, you are extremely advised to use an additional security products that offer total protection.
 
 Features as well as Highlights
 
